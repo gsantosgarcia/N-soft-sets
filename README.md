@@ -9,8 +9,8 @@ References
 1. Borg, E., Love, C.: A demonstration of the Borg centiMax® Scale (CR100) for performance evaluation in diving. Nordic Psychology 70(3), 228–244 (2018)
 2. DiveMeets: 2019 usa diving senior national diving championships, may 19–26, 2019, Indianapolis, IN. https://secure.meetcontrol.com/divemeets/system/eventresultsext.php?meetnum=5950&eventnum=1130&eventtype=9# (2019), Online; accessed 29 January 2021
 3. Emerson, J.W., Seltzer, M., Lin, D.: Assessing 2000 Olympic Games. The American Statistician 63(2), 124–131 (2009)
-4. Grannan, C.: How is diving scored? Encyclopædia Britannica. https://www. britannica.com/story/how-is-diving-scored (2021), Online; accessed 29 January 2021
-5. Kramer, R.S.: Sequential effects in Olympic synchronized diving scores. Royal So- ciety open science 4(1), 160812 (2017)
+4. Grannan, C.: How is diving scored? Encyclopædia Britannica. https://www.britannica.com/story/how-is-diving-scored (2021), Online; accessed 29 January 2021
+5. Kramer, R.S.: Sequential effects in Olympic synchronized diving scores. Royal Society open science 4(1), 160812 (2017)
 6. Realbuzz Team: How scoring works in diving Encyclopædia Britannica. https://www.realbuzz.com/articles-interests/sports-activities/article/how-scoring-works-in-diving (2021), Online; accessed 29 January 2021
 7. TeamUSA, USA Diving, The U.S. Olympic & Paralympic Committee: 2019 USA diving senior national diving championships, May 19–26, 2019, Indianapolis, IN. https://www.teamusa.org/USA-Diving/Events/2019/May/19/2019-USA-Diving-Senior-National-Championships (2019), Online; accessed 29
 January 2021
